@@ -1,2 +1,2 @@
-# Cameron-Chao
+# Cameron Chao Blog
 Cameron Chao Bio
